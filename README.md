@@ -2,11 +2,13 @@
 
 ### I am Yashash Gaurav, currently a Graduate student at Carnegie Mellon University!
 
+Currently, I am lookout for internship opportunities for the summer of 2022 - Hire Me!
+
 ---
 
 ### In the news
 
-- Just finished my first semester of college - Straight As! 😎
+- Just finished my second semester of college - Straight As again! 😎
 - Leet coding in my free time these days.
 
 ##### Bio
