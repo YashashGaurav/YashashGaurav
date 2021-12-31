@@ -2,7 +2,7 @@
 
 ### I am Yashash Gaurav, currently a Graduate student at Carnegie Mellon University!
 
-Currently, I am lookout for internship opportunities for the summer of 2022 - Hire Me!
+Currently, I am on the lookout for internship opportunities for the summer of 2022 - Hire Me!
 
 ---
 
